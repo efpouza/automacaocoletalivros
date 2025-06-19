@@ -1,1 +1,0 @@
-# automacaocoletalivros
